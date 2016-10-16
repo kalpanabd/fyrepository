@@ -8,3 +8,4 @@ In fy their are seven subject
 5. DM
 6. Probability
 7. Soft skill
+emailid-kdb2303@gmail.com
